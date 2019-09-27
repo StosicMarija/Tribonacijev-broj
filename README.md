@@ -1,0 +1,1 @@
+# Tribonacijev-broj
